@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @iamitaelson
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on colaborar em projes colocando em prática todos os meus conhecimentos e técnicos .
+- 👀 I’m interested in  trabalhos e projetos.
+- 🌱 I’m currently learning  marketing, desing e 3D.
+- 💞️ I’m looking to collaborate on colaborar em projes colocando em prática todos os meus conhecimentos e técnicos ..
 - 📫 How to reach  em mim pelo endereço eletró  itaelsonf@gmail.com e WhatsApp +55 (61) 98319-5159.
 
 <!---
